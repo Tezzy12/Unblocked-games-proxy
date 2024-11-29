@@ -1,5 +1,6 @@
 # Unblocked-games-proxy
-UNBLOCKED GAMES AND BROSWERS 
+UNBLOCKED GAMES AND BROSWERS
+EDPUZZLE AND BLOOKET HACKS 
 website that will auto update new gaming websites and ways to bypass stupid securly extensions, please star and any issues report it on the Google form 
 
 click this link to use 
