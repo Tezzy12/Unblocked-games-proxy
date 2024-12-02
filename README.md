@@ -1,7 +1,7 @@
 # Unblocked-games-proxys
 UNBLOCKED GAMES AND BROSWERS
 EDPUZZLE AND BLOOKET HACKS 
-website that will auto update new gaming websites and ways to bypass stupid securly extensions, please star and any issues report it on the Google form 
+website that will auto update new gaming websites and ways to bypass stupid securly extensions, please star and any issues report it on the Google form .
 
 click this link to use 
 https://sites.google.com/view/chr0mefun 
